@@ -14,3 +14,5 @@ dyslexia, ultimately improving their academic and personal outcomes
 ![Screenshot 2024-04-16 133238](https://github.com/abhishekzabi/lexiscan/assets/117814876/93b4bc5a-59a6-45b1-8a9a-480baa5dcb93)
 ![Screenshot 2024-04-16 134028](https://github.com/abhishekzabi/lexiscan/assets/117814876/6b30cf9f-1e8a-456d-a010-ea5cf9b62f3c)
 ![Screenshot 2024-04-16 133256](https://github.com/abhishekzabi/lexiscan/assets/117814876/81cc7b5c-f21b-4473-81c3-b544d3fa3fcf)
+![Screenshot 2024-04-16 134114](https://github.com/user-attachments/assets/05629a8f-9362-4034-9bb6-4d75fddfc13e)
+![Uploading Screenshot 2024-04-16 134053.png…]()
